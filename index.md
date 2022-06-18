@@ -11,7 +11,7 @@
 - Lettres de recommandation.
 - CV.
 - Toute attestation intéressante qui pourrait ajouter de la valeur à votre dossier (toute attestation intéressante qui pourrait ajouter de la valeur à votre dossier...).
-- programme detailler de tout les etude, certaine universsiter le demande, find it, [programme licence SI, master IL](https://drive.google.com/drive/folders/1hYzxqVKxQQZQb4YDqClDUXGKfyzCkbr-?usp=sharing).
+- Programme détaillé de toutes les études, certaines universités l'exigent, [programme licence SI, master IL](https://drive.google.com/drive/folders/1hYzxqVKxQQZQb4YDqClDUXGKfyzCkbr-?usp=sharing).
 - [Photo d'identité](https://drive.google.com/file/d/1-UFl_JDQv6Dwex_X4yFlqN-Jcyh13lnP/view?usp=sharing).
 - Carte nationale 
 
